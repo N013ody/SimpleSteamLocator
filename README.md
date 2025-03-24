@@ -1,1 +1,1 @@
-A mountain of code for practice
+A piece of shit code for practice
